@@ -1,1 +1,0 @@
-# ar-shades-loc3jap26
